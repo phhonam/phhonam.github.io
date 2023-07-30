@@ -1,2 +1,0 @@
-# nam pham
-user researcher
